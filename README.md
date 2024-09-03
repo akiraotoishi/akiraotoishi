@@ -1,1 +1,1 @@
-uhh ill fix dis later
+★ whisper to interact or i'll ignore u
